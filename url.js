@@ -1,1 +1,1 @@
-https://www.fairy-video.com/
+https://fairy-video.com/
